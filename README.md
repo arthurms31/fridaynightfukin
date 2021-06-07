@@ -1,0 +1,2 @@
+# fridaynightfukin
+pls sart game
